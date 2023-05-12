@@ -1,0 +1,5 @@
+**Pre-Rising**
+
+Before [[the Pedestal]] Rising, the town of Montsocal was an old, barely-on-the map village, known for being quiet, self-sustaining, and peaceful. It was located on a plateau, with long lines of sight to the other surrounding areas. It was agricultural to the point of sustaining itself, but seldom exported. The elevation helped to separate Montsocal from its surroundings, and crops flourished there, despite the altitude (many people credit the spirits of nature in the world for helping the crops to thrive). 
+
+The town is sparse and spread out around the plateau, with a town center facilitating barter and community for the townsfolk. Buildings are predominantly wooden, and tend to be very open and breezy, favoring large windows and openings to let the breeze pass through. The town is green and grassy throughout, with fruit trees and bushes punctuating the meadowy grassland outside the town and modest farms and gardens within. It is warmer and more mild in climate than the surrounding area, a trait also credited to the spirits of nature.
