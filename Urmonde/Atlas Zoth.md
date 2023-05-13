@@ -1,4 +1,0 @@
-- Player: Pau
-- Class: Cleric
-	- Domain: undecided life, light, peace, order?
-	- 
